@@ -2,4 +2,4 @@
 in middle school / high school project
 
 --------------------
-12'~14' 
+12'~14' project
